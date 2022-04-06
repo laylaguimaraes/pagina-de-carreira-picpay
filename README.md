@@ -16,7 +16,7 @@ Por isso, nossas vagas estão abertas para todas as pessoas, independente de gê
 
 #### E o mais importante! Nossa equipe é apaixonada pelo que faz, por isso somos PicPay Lovers. Vem fazer parte dessa jornada! 💚
 
-##### Benefícios para os PicPay Lovers: 
+#### Benefícios para os PicPay Lovers: 
 Saúde e Bem-estar: Além de Assistência Médica e Odontológica, oferecemos Seguro de Vida e o PicPay Acolhe, um programa que cuida de você e seus familiares, com apoio jurídico, social, psicológico e financeiro. E claro, não podemos esquecer da nossa parceria com a Gympass.
 
 Somos flexíveis:  Por meio de um cartão de crédito, bandeira Visa, você recebe seu saldo de Alimentação ou Refeição e Mobilidade, com a opção de escolher o melhor uso do seu saldo.
